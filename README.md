@@ -1,2 +1,2 @@
 # AplikasiPenghitungUmur
-Latihan 2 - Ahmad Arrizqianur Aslamudin (2310010433)
+Latihan 2 -Radit Fadilah 2310010053
